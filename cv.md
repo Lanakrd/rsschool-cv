@@ -3,11 +3,11 @@
 
 
 **Contact information:**
--**Phone:** +905 372 70 23 08
--**E-mail:** svetlanakaradagtr@gmail.com
--**Discord:** Lanakrd (@Lanakrd#6588)
--**GitHub:** Lanakrd
--**LinkedIn:** https://www.linkedin.com/in/svetlana-karadag-a616b9221/
+- **Phone:** +905 372 70 23 08
+- **E-mail:** svetlanakaradagtr@gmail.com
+- **Discord:** Lanakrd (@Lanakrd#6588)
+- **GitHub:** Lanakrd
+- **LinkedIn:** https://www.linkedin.com/in/svetlana-karadag-a616b9221/
 
 ## About myself
 
